@@ -11,7 +11,7 @@ ${\textsf{\color{#513559}✦ . ᶻ 𝗓 𐰁    Azure / Aspen
 ${\textsf{\color{#513559}╰ Azure dedicated account ♡  .}}$ <br>
 
 ${\textsf{\color{#513559} graphics 
-credit to oomf donne thankyou♡ >}}$
+credit to oomf donne thankyou♡ }}$
 
 
 <img width="1920" height="1080" alt="4150" src="https://github.com/user-attachments/assets/d1df7c8e-92f2-496f-9b6b-aa377b57d161" />
